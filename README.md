@@ -2,7 +2,7 @@
 - 👀 I’m interested in woman
 - 🌱 I’m currently learning how to get woman
 - 💞️ I’m looking to collaborate on relationship
-- 📫 How to reach me tinder
+- 📫 How to reach me: tinder
 - 😄 Pronouns: She/woman
 - ⚡ Fun fact: Im adicted to girls
 
